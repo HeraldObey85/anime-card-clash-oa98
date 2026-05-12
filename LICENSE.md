@@ -1,4 +1,4 @@
-#  
+#  automatic anime card clash Script is the best anime card clash Script, featuring auto-farm and auto-heal. Safe and powerful for all your needs.
 
 
 
